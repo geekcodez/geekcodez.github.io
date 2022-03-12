@@ -1,2 +1,2 @@
-# geekcodes.github.io
+# geekcodez.github.io
 
